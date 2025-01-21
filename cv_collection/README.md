@@ -1,4 +1,4 @@
-# Recruitment CV collection
+# CV collection
 
 ## About
 
